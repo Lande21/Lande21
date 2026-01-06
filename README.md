@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently looking for hackathons, data science opportunities and to collaborate on data science projects.<br>👯 I’m looking for affordable conferences to attend possibly to sponsor me :)<br>🤔 I’m in grad school @MSU.<br>💬 Ask me about my favorite self help books or about my capstone ~ iOS mobile application (GuideMoi)<br>📫 How to reach me: tech_ru@proton.me email or LinkedIn (https://www.linkedin.com/in/rumuhoza)<br><br>
+🔭 I’m currently looking for hackathons, data science opportunities and to collaborate on data science projects.<br>👯 I’m looking for affordable conferences to attend possibly to sponsor me :)<br>🤔 I’m in grad school @MSU.<br>💬 Ask me about my first 10K or about my capstone ~ iOS mobile application (GuideMoi)<br>📫 How to reach me: umyrolande@gmail.com email or LinkedIn (https://www.linkedin.com/in/rumuhoza)<br><br>
 
 
 ## 🌐 Socials:
